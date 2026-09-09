@@ -1,1 +1,0 @@
-# -Taahki-medicine-center-
